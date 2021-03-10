@@ -1,6 +1,9 @@
 # Python
 BES120
 
-I'm Angel! I am a Blink!
+Hi!
 
-Stream Rosé's solo!
+My nickname is Angel! I am a Blink!
+
+Stream Rosé's solo! or else...
+charot
